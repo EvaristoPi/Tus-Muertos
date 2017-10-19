@@ -4,4 +4,4 @@ Tus Muertos
 
 Como dijo mi puta madre:
 
-> Hola 
+> Recoge la ropa hijo de puta 
