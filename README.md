@@ -4,4 +4,4 @@ Tus Muertos
 
 Como dijo mi puta madre:
 
-> Hola 
+> Hola, Sida Gonorrea Hijueputa
